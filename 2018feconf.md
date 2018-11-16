@@ -1,3 +1,7 @@
+# 정말 좋은 후기 사이트
+
+https://ideveloper2.tistory.com/m/157?fbclid=IwAR1_6aaJNgfPlBucFZEbz-EvfPOB4ppJ2QYAqnaqsRuw2YrdgMhibearsAQ
+
 # KEY NOTE
 
 1. 우아한 형제들 소개
